@@ -7,7 +7,7 @@ Dead Rails Script: Unlock ESP, fly, noclip, aimbot, godmode, kill aura, item bri
   </a>
 </div>
 
-![image](https://github.com/user-attachments/assets/e2e72013-0aa8-40ed-95e7-a946a8634119)
+![image](https://github.com/user-attachments/assets/e6744f8e-d690-4558-9a20-2cd7dc2d7359)
 
 ![maxresdefault](https://github.com/user-attachments/assets/261d954d-dcda-4775-8ffc-85fd8624103f)
 
